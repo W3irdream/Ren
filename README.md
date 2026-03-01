@@ -16,6 +16,3 @@
 
 
 ♡ brightsky, Mollymatt, 1xdoe my goats <33
-
-
-♡ hypersensitive, CPTSD  , very high social anxiety
